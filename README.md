@@ -1,0 +1,1 @@
+# HN-KS26-CNTT3_Promting-AI_Session6_Ex02
